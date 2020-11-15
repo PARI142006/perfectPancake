@@ -1,0 +1,2 @@
+this is my recipe:)
+The pan needs to be very hot for the pancakes that it'll eventually turn brown. We can use minimal coating of butter, rather than bunging a spoonful into the pan. Unsalted butter, for its whey content doesn't burn so easy. A mix of butter and oil is also less likely to burn so easily.  
